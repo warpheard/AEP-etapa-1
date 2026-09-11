@@ -1,4 +1,4 @@
-# AEP Etapa 1: PSE em Ação — Sistema de Planejamento e Acompanhamento de Ações de Saúde na Escola
+AEP Etapa 1: PSE em Ação — Sistema de Planejamento e Acompanhamento de Ações de Saúde na Escola
 
 Paritipantes: 
 Letícia Caumo Botelho – R.A: 26008981-2
